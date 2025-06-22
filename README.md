@@ -9,3 +9,5 @@ main fandom: persona 3, sekai, sally face, ace attorney, chiikawa, milgram, dang
 ㅤㅤidk what else to write :*
 _________
 c+h always, w2i ٩(๑*-*๑)۶
+
+![Image](https://github.com/user-attachments/assets/bca2ca76-aeb8-45b2-b7d9-def7ac4a2a7e)
